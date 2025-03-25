@@ -1,3 +1,5 @@
+![alt text](<meme squish-1.jpg>)
+
 ## ¡Hola! :) , 
 
 Me presento, me llamo Camila Salas Riffo, tengo 24 años y vivo en Santiago con mi familia.
