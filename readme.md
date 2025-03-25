@@ -1,6 +1,4 @@
-![alt text](<Imagen de WhatsApp 2025-03-25 a las 13.27.29_8c6cf918.jpg>)
-
---- 
+![alt text](<meme squish.jpg>)
 
 ## ¡Hola! :) , 
 
@@ -29,6 +27,3 @@ Actualmente tengo dos gatitos 🐈🐈‍⬛, Meme y Squishy, con 4 y 2 años re
 * Power BI 
 * Excel
 * Latex
-
-
-
