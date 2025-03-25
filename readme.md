@@ -1,4 +1,4 @@
-![alt text](<foto U 2.jpg>)
+![alt text](<Imagen de WhatsApp 2025-03-25 a las 13.27.29_8c6cf918.jpg>)
 
 --- 
 
