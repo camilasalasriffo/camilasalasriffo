@@ -1,4 +1,4 @@
-![alt text](<meme squish-1.jpg>)
+![alt text](<meme squish.jpg>)
 
 ## ¡Hola! :) , 
 
